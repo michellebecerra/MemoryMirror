@@ -1,0 +1,1 @@
+Hypothesis: Hypothesis: Combining all the senses: visual, auditory, and kinesthetic, will result in high memory storage and recall. Certain combinations of senses will affect certain groups of people better.
